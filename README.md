@@ -1,3 +1,3 @@
-![GN9pPutXEAALp2W](https://github.com/chuufin/chuufin/assets/125097586/93299d30-c028-4eeb-9b81-290cd0e1ce95)
+![image](https://github.com/chuufin/chuufin/assets/125097586/6901a74d-cb4c-4d52-8fcd-e94e5913736c)
 
 *art is by MokaUsr on twt btw ^_^*
