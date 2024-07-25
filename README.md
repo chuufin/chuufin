@@ -1,3 +1,3 @@
-![image](https://github.com/chuufin/chuufin/assets/125097586/6901a74d-cb4c-4d52-8fcd-e94e5913736c)
+![IMG_5630](https://github.com/user-attachments/assets/f78b1067-89f1-47d3-9b63-192dcc107a36)
 
-*art is by MokaUsr on twt btw ^_^*
+*art is by blkventi on twt btw ^_^*
